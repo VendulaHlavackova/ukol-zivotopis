@@ -1,2 +1,0 @@
-# ukol-zivotopis
-# ukol-zivotopis
